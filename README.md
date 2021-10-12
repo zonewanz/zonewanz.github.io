@@ -1,1 +1,1 @@
-# zonewanz.github.io
+# ini adalah blog pertamaku
